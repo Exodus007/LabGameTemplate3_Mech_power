@@ -1,0 +1,1 @@
+# LabGameTemplate3_Mech_power
